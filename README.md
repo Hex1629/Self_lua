@@ -1,2 +1,8 @@
 # Self_lua
-only test project
+
+PROJECT RBLX
+
+* RANSOM.FAKE
+  * WANNA CRY COPYCAT
+* WIPER
+  * SOON  
